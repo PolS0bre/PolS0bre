@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sobrepera.pol@gmail.com**
 
-- 📄 Know about my experiences [https://acortar.link/uJ95fC](https://acortar.link/uJ95fC)
+- 📄 Know about my experiences [Curriculum Vitae]([https://acortar.link/uJ95fC](https://www.canva.com/design/DAFlT0FA0mc/9p0fj0if-aiTZPEg16oSlA/view?utm_content=DAFlT0FA0mc&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
