@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Pol Sobrepera Casol</h1>
 <h3 align="center">A Catalan Game Programmer and Game Designer</h3>
 
-- 🔭 I’m currently working on **DrifCade**
+- 🔭 I’m currently working on **DriftCade**
 
 - 👨‍💻 All of my projects are available at [https://pol16ako.itch.io](https://pol16ako.itch.io)
 
